@@ -1,0 +1,1 @@
+# thuza_ppc_soma_sem_global
